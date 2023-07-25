@@ -13,5 +13,5 @@
 Qualquer dúvida entre em contato
 <a href="mailto:larissa.sposito@escola.pr.gov.br" target="_blank"><img src="https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white" target="_blank"/></a>
 
-![](https://tenor.com/pt-BR/view/cat-nod-cat-nod-cat-nodding-cute-cat-gif-23793862)
+![](https://media.tenor.com/lGIsT42EqHsAAAAS/cat-nod.gif)
 
